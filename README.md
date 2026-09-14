@@ -1,4 +1,7 @@
 # ptest-jongin
+dont worry hands are much quicker than eyes
+
+GURA with one's soul!
 dont worry hands are much faster than eyes
 
 ㄴ 달무티 ㄱㄱ
